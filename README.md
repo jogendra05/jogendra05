@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **jgdsut05@gmail.com**
 
-- ⚡ Fun fact **bug fixer**
+- ⚡ Fun fact **Bug fixer 😅**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
